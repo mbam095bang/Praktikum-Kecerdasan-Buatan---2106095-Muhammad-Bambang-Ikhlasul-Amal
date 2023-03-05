@@ -1,0 +1,1 @@
+# Praktikum-Kecerdasan-Buatan---2106095-Muhammad-Bambang-Ikhlasul-Amal
